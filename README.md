@@ -1,2 +1,2 @@
 # web1
-begginer's website
+begginer's website but its good.
